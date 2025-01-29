@@ -45,7 +45,7 @@ For any inquiries, please reach out to:
 
 - Email: amannandhait7@gmail.com
 - Phone: +91 7202089638
-- [LinkedIn](www.linkedin.com/in/aman-nandha-513690264)
+- [LinkedIn](https://in.linkedin.com/in/aman-nandha-513690264)
 - [GitHub](https://github.com/amannandha007)
 
 Made with ❤️ by [Aman Nandha](https://www.instagram.com/aman.nandha/)
